@@ -1,0 +1,1 @@
+# Funksiyada-mantiqiy-elementlar
